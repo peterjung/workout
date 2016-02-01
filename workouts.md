@@ -15,20 +15,6 @@
 * sling 15,15
 * dips bank 20,20
 
-
-## 25.01.
-* kz 4 innen
-* squats a20 10
-* kz mit band aussen 6
-* squats a22.5 10
-* sqauts a25 10
-* bankdruecken a15 20
-* bankdruecken a20 15
-* bankdruecken a25 10,10,8
-* kz innen 2 
-* kz innen mit band 4
-* sling 15,15
-
 ## 30.01.
 * kz aussen 3
 * kz chinups 5
@@ -46,3 +32,15 @@ _dann squats sein gelassen, knie meldet sich_
 * bankdruecken a25 8,7(nicht mehrhoch bekommen,uff)
 * langhantelrudern a15 15 kein bock mehr
 
+## 25.01.
+* kz 4 innen
+* squats a20 10
+* kz mit band aussen 6
+* squats a22.5 10
+* sqauts a25 10
+* bankdruecken a15 20
+* bankdruecken a20 15
+* bankdruecken a25 10,10,8
+* kz innen 2 
+* kz innen mit band 4
+* sling 15,15
