@@ -1,5 +1,16 @@
 # Workouts
 
+## 02.02.
+* Air Squats 20
+* Squats a15 10
+* Squats a25 10,10
+* Bankdruecken a15 20
+* Bankdruecken a20 15
+* Bankdruecken a25 7,7
+* kz vorne 5
+
+aufgehört weil Arme brennen, kA wieso
+
 ## 01.02.
 * Air Squats 20
 * Deadlift a32,5 5,10,10,10
