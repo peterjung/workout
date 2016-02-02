@@ -1,12 +1,12 @@
 # Workouts
 
 ## 01.02.
-Air Squats 20
-Deadlift a32,5 5,10,10,10
-Push Press (ausprobieren) a15 5
-Squats a15 10
-Squats a25 10,10,10
-Dips 4,3
+* Air Squats 20
+* Deadlift a32,5 5,10,10,10
+* Push Press (ausprobieren) a15 5
+* Squats a15 10
+* Squats a25 10,10,10
+* Dips 4,3
 
 ## 31.01.
 * kz aussen 3
