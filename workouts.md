@@ -1,5 +1,17 @@
 # Workouts
 
+## 04.02.
+* kz vorne 6 mit absetzen
+* Air Squats 20
+* Dips 4
+* shoulder press a15 4
+* Squats a15 10,10 probleme mit schulter wo stange auf liegt
+* Air Squats mit springen 10,15,15
+* Russischer Twist ausprobiert
+* Bizeps Curls mit hand öffnung nach unten, langsam runter SZ a5 5,5
+* Plank 1min
+* Sling 15
+
 ## 02.02.
 * Air Squats 20
 * Squats a15 10
