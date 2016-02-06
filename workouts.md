@@ -1,5 +1,19 @@
 # Workouts
 
+## 06.02.
++ burpees ueben
++ kz "shrugs" 10,10,10
++ air squats 20
++ shoulder press a15 4
++ squats a15 10,10
++ squats a25 10,10,5 schulter probleme
++ bankdruecken a15 20
++ bankdruecken a20 15
++ bankdruecken a25 10,9 ende
++ umgek. bankdruecken (ziehen) 10
++ joggen bääh
+
+
 ## 04.02.
 * kz vorne 6 mit absetzen
 * Air Squats 20
