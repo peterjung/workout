@@ -1,5 +1,17 @@
 # Workouts
 
+## 08.02.
++ kz innen 4
++ shoulder press a10 10,10,9
++ squat swing dumbbell a10 10,7
++ Air Squat 10
++ squat a15 10
++ kz innen 4
++ air squat 10
++ sling 15,12
++ deadlift a30 5,6,6 
+
+
 ## 06.02.
 + burpees ueben
 + kz "shrugs" 10,10,10
