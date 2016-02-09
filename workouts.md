@@ -1,5 +1,17 @@
 # Workouts
 
+## 09.02.
++ kz aussen 4
++ kz aussen mit gummiband 4,5
++ dips 3
++ deadlift a30 9,10,7
++ bench sz trizeps curls a5 20
++ bench sz trizeps curls a6.25 20
++ bench sz trizeps curls a7.5 18
++ back lunges ca. 20
++ air squats 10
++ kw swing jeweils 10
+
 ## 08.02.
 + kz innen 4
 + shoulder press a10 10,10,9
