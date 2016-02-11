@@ -1,5 +1,16 @@
 # Workouts
 
+## 11.02.
++ _fies muskelkater im trizeps_
++ back lunges 20,20
++ kz aussen 4
++ bizeps sz curls a7.5 10,10,12
++ bankdruecken a15 20
++ bankdruecken a20 15,15
++ chin ups 4
++ bizeps curls bank 26 (kacktechnik),20
++ plank 50sek
+
 ## 09.02.
 + kz aussen 4
 + kz aussen mit gummiband 4,5
