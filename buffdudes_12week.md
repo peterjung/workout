@@ -1,0 +1,35 @@
+
+## Phase1
+https://www.youtube.com/watch?v=sgD9bRVcMZ4&list=PL_UAXxDwtUkHlN6atQE4ql4Xw1yzBl3Yz&index=3
+
+*30 to 90 seconds rest time, pro woche reduzierern*
+
+# Day1 
++ Squats 		5x 15reps
++ bend over rows 	5x 15
++ bench press 		5x 15
++ overhead press	5x 15
++ external rotations	3x 12 ( auf seite liegen kleine dumbbell)
++ seated calf raises	3x 15 ( zehen auf dumbbells, barbell auf kniehe)
++ mountain climbers	3x 30 secs
++ plank			3x 30 secs
+# Day2
++ Deadlift		5x 15
++ landmine press	5x 15 (barbell in ecke, knihen, brushöhe bis ganz oben)
++ altern. arnold press	5x 15 (dumbbells vor brust handöffnung zum körper, hoch drücken)
++ altern front lunge	5x 10 (each leg) mit barbell
++ pullovers		3x 15 qaur auf bank, nur aus schulter gelenk, nicht trizeps)
++ weightes crunches 	3x 15 mit dumbbell, füsße gegen wand
++ side plank		3x 30 seconds (each side)
+# Day 3
++ front squats 		5x 15
++ t-bar row		5x 15 stange in ecke, über stange stehen, handtuch um stange, ziehen trizeps
++ Dips			5x 15
++ upright rows		5x 15 barbell zu brust hochreissen, eher wenig gewicht
++ glute brighes		3x 10 barbell auf becken, auf boden legen, becken hoch
++ stand. calf raises	3x 15 zehen auf plates stehen, mit dumbbells
++ russian twist		3x 30 (15 each side), kleines gewicht in der hand
+
+
+
+
