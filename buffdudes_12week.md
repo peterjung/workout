@@ -5,11 +5,11 @@ https://www.youtube.com/watch?v=sgD9bRVcMZ4&list=PL_UAXxDwtUkHlN6atQE4ql4Xw1yzBl
 *30 to 90 seconds rest time, pro woche reduzierern*
 
 # Day1 
-+ Squats 		5x 15reps
-+ bend over rows 	5x 15
-+ bench press 		5x 15
-+ overhead press	5x 15
-+ external rotations	3x 12 ( auf seite liegen kleine dumbbell)
++ Squats 		5x 15	a15 12345 ok
++ bend over rows 	5x 15	a15 12345 ok nächstes mal bisshen mehr
++ bench press 		5x 15	a15 12345 ok
++ overhead press	5x 15   a10 10, danach a5 1234 mit 2min pasue undzwischendurch absetzen
++ external rotations	3x 12 	a0  ## bis hier ## ( auf seite liegen kleine dumbbell)
 + seated calf raises	3x 15 ( zehen auf dumbbells, barbell auf kniehe)
 + mountain climbers	3x 30 secs
 + plank			3x 30 secs
