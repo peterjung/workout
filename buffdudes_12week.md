@@ -14,10 +14,10 @@ https://www.youtube.com/watch?v=sgD9bRVcMZ4&list=PL_UAXxDwtUkHlN6atQE4ql4Xw1yzBl
 + mountain climbers	3x 30 secs
 + plank			3x 30 secs
 # Day2
-+ Deadlift		5x 15
-+ landmine press	5x 15 (barbell in ecke, knihen, brushöhe bis ganz oben)
-+ altern. arnold press	5x 15 (dumbbells vor brust handöffnung zum körper, hoch drücken)
-+ altern front lunge	5x 10 (each leg) mit barbell
++ Deadlift		5x 15 a30 10,10,10,10,10
++ landmine press	5x 15 a15 easy 15, a20 easy 15, a25 15,15,15 (barbell in ecke, knihen, brushöhe bis ganz oben)
++ altern. arnold press	5x 15 10 pro dumbbell 10 ächz, a2.5 12,12,10,10  (dumbbells vor brust handöffnung zum körper, hoch drücken)
++ altern front lunge	5x 10 (each leg) mit barbell ## bis hier , kein bock mehr ##
 + pullovers		3x 15 qaur auf bank, nur aus schulter gelenk, nicht trizeps)
 + weightes crunches 	3x 15 mit dumbbell, füsße gegen wand
 + side plank		3x 30 seconds (each side)
